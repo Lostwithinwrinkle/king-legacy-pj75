@@ -1,4 +1,4 @@
-
+king legacy Script automatic offers the most advanced king legacy Script, with undetectable and auto-collect. Perfect for dominating any match.
 
 
 
